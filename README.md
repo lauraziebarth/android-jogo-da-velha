@@ -2,7 +2,6 @@
 
 Projeto criado apenas para estudo.
 
-
-https://user-images.githubusercontent.com/38667871/130547526-b60ca02d-b99d-410e-b4c9-02eaf35f0959.mov
+https://user-images.githubusercontent.com/38667871/130547628-bba89780-e3f5-4144-92d5-643dcc592ee2.mov
 
 
